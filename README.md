@@ -1,5 +1,5 @@
  Hi, This is Jiho and you can add me @henrykjh on gitbub
-- Tryna learn to code.
+- please add me up if you are interested in
 
 <!---
 henrykjh/henrykjh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
